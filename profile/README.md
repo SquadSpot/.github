@@ -1,1 +1,3 @@
 ## Hi tehere ✋
+
+SquadSpot is your ultimate companion for discovering exciting activities and experiences nearby, perfect for groups of friends or couples seeking adventure. Whether you're looking for a thrilling outdoor expedition, a cozy restaurant for a romantic dinner, or a lively event to attend with your friends, SquadSpot has you covered. With intuitive search features and personalized recommendations, finding the next memorable outing for your squad has never been easier. Explore, bond, and create unforgettable moments together with SquadSpot.
